@@ -1,3 +1,3 @@
 # Beadando_Feladat
 
-Szeretem az autókat
+Szeretem a motorokat
